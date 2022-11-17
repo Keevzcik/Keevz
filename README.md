@@ -1,4 +1,4 @@
-Hey Selam Ben Keevz 5 Yıldır Discord Ortamındayım 2 2.5 Yıldır İse Discordda Bot Geliştiriyorum Yakında Buralara Güzel Editlenmiş Botlar Atacağım Beklemede Kalın.
+Hey Selam Ben Keevz 5 Yıldır Discord Ortamındayım 2 2.5 Yıldır İse Discordda Bot Geliştiriyorum.
 ![image](https://user-images.githubusercontent.com/118479147/202539625-f580f582-8e44-4806-b5b3-c561cd4b63aa.png)
 ![image](https://user-images.githubusercontent.com/118479147/202539701-7a35f3fb-5fa8-4432-8ba5-9c16d78a2026.png)
 
